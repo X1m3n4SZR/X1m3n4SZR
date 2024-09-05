@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on our projects for class.
 - 📫 How to reach me: email.
 - 😄 Pronouns: she/her/ella
-- ⚡ Fun fact: I have two cysts in my right wrist.
+- ⚡ Fun fact: I have two tattoos.
 
 <!---
 X1m3n4SZR/X1m3n4SZR is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
