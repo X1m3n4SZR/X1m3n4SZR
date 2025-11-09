@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @X1m3n4SZR
 - 👀 I’m interested in figure skating, reading, music, and more.
-- 🌱 I’m currently learning Computer Science at MiraCosta College.
+- 🌱 I’m currently learning Computer Science for Transfer at MiraCosta College.
 - 💞️ I’m looking to collaborate on our projects for class.
 - 📫 How to reach me: email.
 - 😄 Pronouns: she/her/ella
